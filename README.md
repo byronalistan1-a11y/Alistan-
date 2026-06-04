@@ -1,4 +1,4 @@
-# Hi, I'm Alistair Byron 👋
+# Hi, I'm Alistan Byron 👋
 
 ## About Me
 
